@@ -1,3 +1,3 @@
 # DSA-2
 
-<img width="378" alt="output" src="https://github.com/user-attachments/assets/e1fef23d-fb6d-48c2-a742-8fcb328e2c53">
+<img width="509" alt="pic" src="https://github.com/user-attachments/assets/43927404-7469-4401-b3a4-08b3ffce7a76">
